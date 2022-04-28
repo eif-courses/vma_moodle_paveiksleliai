@@ -1,0 +1,1 @@
+# vma_moodle_paveiksleliai
